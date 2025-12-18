@@ -1,0 +1,78 @@
+# BE:FIRST – I Want You Back
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I want you back in my life
+出来合いの言葉はいらない
+君以外意味がない
+ため息ばかり
+もう軽くなった右肩に
+言えなくなっちゃったままのおかえりなさい
+当たり前なんて一つも無いし
+記憶の中の全てが大事
+Now it's much too late for me
+to take a second look
+Oh baby give me one more chance
+(Show you that I love you)
+Won't you please let me
+Back in your heart
+Oh darlin' I was blind to let you go
+(Let you go baby)
+But now since I see you in his arms
+(I want you back)
+One time for your mind
+(I want you back)
+Bring it Back...
+(I want you back)
+Two time let's rewind
+(I want you back)
+Bring it Back...
+どうしようもないね
+もう何度泣いたって
+この冷たい夜はまだ明けない
+永遠に (Oh)
+醒めない夢の中
+君はもう誰かの腕の中
+届かないってわかっててまだ自分勝手
+だとしたって
+Let me tell you now
+Oh baby give me one more chance
+(Show you that I love you)
+Won't you please let me
+Back in your heart
+Oh darlin' I was blind to let you go
+(Let you go baby)
+But now since I see you in his arms uh
+A buh buh buh buh
+A buh buh buh buh
+喜びも悲しみも
+その全てが愛しいよ
+掠れて消える前に
+もう一度
+巻き戻せない
+移りゆく時代
+たらればだけ重ねれば果てしない
+傷だらけのバイナルに針を落とす
+取り戻す記憶の奥にまた火を灯す
+Forget what happened then
+Let me live again
+Oh baby give me one more chance
+(Show you that I love you)
+Won't you please let me
+Back in your heart
+Spare me of this cause
+Gimmie back what I lost
+Oh darlin' I was blind to let you go
+(Let you go baby)
+But now since I see you in his arms
+(I want you back)
+One time for your mind
+(I want you back)
+Bring it Back...
+(I want you back)
+Two time let's rewind
+(I want you back)
+Bring it Back...
+(I want you back)
+```
